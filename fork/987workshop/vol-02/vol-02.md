@@ -1,7 +1,7 @@
 # "987 Workshop" vol.2
 
-SATURDAY 8 AUGUST 2015  
-OPEN: ???? hrs
+SATURDAY 22 AUGUST 2015  
+OPEN: 24:30 hrs
 
 ### コンテンツ・タイムテーブル
 
