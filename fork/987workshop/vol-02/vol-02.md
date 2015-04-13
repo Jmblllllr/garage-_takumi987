@@ -19,5 +19,4 @@ and more...
 and more...
 
 ### STAFF & FACILITATOR
-- たくみ (koganeigroovy、エターナルブリザード)
-- YORO (koganeigroovy、BIGBOY、Hi-copine)
+- たくみ、YORO、ショタソン、baya  <br>(from koganeigroovy)
